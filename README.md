@@ -19,4 +19,4 @@ Mi objetivo en esta nueva etapa es tener mi primera experiencia laboral como Des
 ¡Gracias por leer! 🙌
 
 Contacto: nico.solans.drc@gmail.com
-LinedIn: https://www.linkedin.com/in/nicolas-solans-706518270/
+LinkedIn: https://www.linkedin.com/in/nicolas-solans-706518270/
